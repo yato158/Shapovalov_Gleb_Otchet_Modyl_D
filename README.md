@@ -1,1 +1,0 @@
-# Shapovalov_Gleb_Otchet_Modyl_D
